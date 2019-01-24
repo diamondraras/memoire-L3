@@ -1,1 +1,2 @@
-# memoire-L3
+# Diamondra RASOAMANANA MemoireL3
+diamondraras@gmail.com
